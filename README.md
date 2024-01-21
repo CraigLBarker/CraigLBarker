@@ -7,12 +7,15 @@
 
 - 🌱 I’m currently !! Trying !! to learn ... How to create python based applications for Assetto Corsa, with no coding knowledge whatsoever 👀🙄.
 - I'm sure this ChatGPT stuff as well as Google and most of all the community 😂🫠 can give me a few tips, well, I'm hoping 😇.
--
+
 - 💞️ I’m looking to collaborate on ... absolutely nothing, unless things need destroying ☠️
--
+
 - 📫 How to reach me ... Preferably with a warming friendly hug 🫂 🤗, but one arm would more than definitely do
--
+
 - ⚡ Fun fact: ... A mid life prostate examination "Can" be fun! 🕳✊️
+
+- 🏆 Life Goal: ... to convince myself that life isn't as hard as I think it is, and I can actually achieve something without it falling to bits.
+- a tough 💪 goal but let's do this 💪 
 
 
 <!---
